@@ -1,1 +1,2 @@
 # READ.ME1
+Meu portfólio está sendo apresentado no 4º bimestre do curso técnico e reúne um pouco da minha trajetória, dos aprendizados e dos projetos desenvolvidos ao longo dessa jornada. Aqui estão algumas das atividades que realizei, minhas experiências e tudo o que pude aprender e colocar em prática durante o curso. Mais do que apresentar trabalhos, este espaço representa minha evolução, criatividade e dedicação em cada etapa.
